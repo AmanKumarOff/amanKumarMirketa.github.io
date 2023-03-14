@@ -1,1 +1,1 @@
-# amanKumarMirketa.github.io
+# Aman's Journal
